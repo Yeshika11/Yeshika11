@@ -18,7 +18,6 @@
 
 - 📫 How to reach me **yeshikaavishki22@gmail.com**
 
-- ⚡ Fun fact **Call me as Yeshika**
 <br><br><br>
  
 ---
